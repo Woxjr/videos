@@ -1,5 +1,12 @@
 # +!+^$[Here’s Way To Watch] Xavier vs Villanova ＬＩＶＥ 𝚂𝚝𝚛𝚎𝚊𝚖 𝙵𝚛𝚎𝚎 𝖮𝗇𝗅𝗂𝗇𝖾 ＯＮ Ｔｖ Ｃｈａｎｎｅｌ in 09 FEB ２０２５
 
+
+**[➤►🌍📺📱👉LINK 🔴✅👉CLICK HERE TO WATCH LIVE NOW](https://ultravibetv.com/college-basketball/?v=Jr+Git)**
+
+**[➤►🌍📺📱👉LINK 🔴✅👉CLICK HERE TO WATCH LIVE NOW](https://ultravibetv.com/college-basketball/?v=Jr+Git)**
+
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEimyRnSMxOK0jynZ1ohe7rOmX0Pk0UQXcP_wWwnDLbpHKVcLAEiRLj0uJGUP8UYOa0RCOPIwM-cCaHrfF2nlVCFWapeFCwDfoHQb9yQPqBKRVNRCFH3tAmiOV1FUQm1O6K-bCY8E6praH2DuDe7emTPKbF80IWMGHkkazyDdpX9E7XcrEykpQS4JAjAZJQ/w521-h293/Basketball.gif)](https://ultravibetv.com/college-basketball/?v=Jr+Git)
+
 Live Events ; 12 p.m., Men's Basketball, Villanova ; Wednesday, February 12 ; 7 p.m., Women's Basketball, Providence ; 8 p.m., Men's Basketball, Providence ... Villanova vs. Xavier Game Info · Game day: Sunday, February 9, 2025 · Game time: 12:00 PM ET · TV Channel: Fox Sports 1 · Live Stream: Watch this ...
 
 The Xavier Musketeers (14-9) and the Villanova Wildcats (13-10) square off in a Big East battle on Sunday. The Musketeers have won two of their last three games. On Feb. 4, Xavier defeated Georgetown, 74-69. The Wildcats halted their three-game skid in their last outing. On Feb. 5, Villanova outlasted DePaul, 59-49. Back on Jan. 14, Xavier defeated the Musketeers, 69-63. 
