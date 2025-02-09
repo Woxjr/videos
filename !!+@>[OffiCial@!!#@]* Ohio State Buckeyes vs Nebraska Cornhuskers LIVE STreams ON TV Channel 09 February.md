@@ -1,5 +1,12 @@
 # !!+@>[OffiCial@!!#@]* Ohio State Buckeyes vs Nebraska Cornhuskers LIVE STreams ON TV Channel 09 February
 
+
+**[➤►🌍📺📱👉LINK 🔴✅👉CLICK HERE TO WATCH LIVE NOW](https://ultravibetv.com/college-basketball/?v=Jr+Git)**
+
+**[➤►🌍📺📱👉LINK 🔴✅👉CLICK HERE TO WATCH LIVE NOW](https://ultravibetv.com/college-basketball/?v=Jr+Git)**
+
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEimyRnSMxOK0jynZ1ohe7rOmX0Pk0UQXcP_wWwnDLbpHKVcLAEiRLj0uJGUP8UYOa0RCOPIwM-cCaHrfF2nlVCFWapeFCwDfoHQb9yQPqBKRVNRCFH3tAmiOV1FUQm1O6K-bCY8E6praH2DuDe7emTPKbF80IWMGHkkazyDdpX9E7XcrEykpQS4JAjAZJQ/w521-h293/Basketball.gif)](https://ultravibetv.com/college-basketball/?v=Jr+Git)
+
 How to Watch Nebraska vs. Ohio State · Game day: Sunday, February 9, 2025 · Game time: 2:00 PM ET · TV channel: Big Ten Network · Live Stream: Watch ... How to watch the Nebraska vs. Ohio State NCAA basketball game today, with TV channel and live streaming information.
 
 The Nebraska Cornhuskers (15-8, 5-7 Big Ten) will try to continue a three-game win streak when they host the Ohio State Buckeyes (14-9, 6-6 Big Ten) on February 9, 2025 at Pinnacle Bank Arena.
