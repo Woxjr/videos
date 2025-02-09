@@ -1,5 +1,12 @@
 # !!+@>[OffiCial@!!#@]* Rutgers Scarlet Knights vs Maryland Terrapins LIVE STreams ON TV Channel 09 February
 
+
+**[➤►🌍📺📱👉LINK 🔴✅👉CLICK HERE TO WATCH LIVE NOW](https://ultravibetv.com/college-basketball/?v=Jr+Git)**
+
+**[➤►🌍📺📱👉LINK 🔴✅👉CLICK HERE TO WATCH LIVE NOW](https://ultravibetv.com/college-basketball/?v=Jr+Git)**
+
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEimyRnSMxOK0jynZ1ohe7rOmX0Pk0UQXcP_wWwnDLbpHKVcLAEiRLj0uJGUP8UYOa0RCOPIwM-cCaHrfF2nlVCFWapeFCwDfoHQb9yQPqBKRVNRCFH3tAmiOV1FUQm1O6K-bCY8E6praH2DuDe7emTPKbF80IWMGHkkazyDdpX9E7XcrEykpQS4JAjAZJQ/w521-h293/Basketball.gif)](https://ultravibetv.com/college-basketball/?v=Jr+Git)
+
 ... Streaming Video - Men's Basketball vs Rutgers (12 PM) · Streaming Audio - Men's Basketball vs Rutgers (12 PM) · Streaming Stats - Men's Basketball vs Rutgers ( ... Livestream has ended. Recording available. watch again. Rutgers at Maryland ... Destiny Adams Highlights vs. Maryland | Rutgers Women's Basketball | 01/02 ...
 
 The No. 18 Maryland Terrapins will host the Rutgers Scarlet Knights in Big Ten action on Sunday. The Terps are 17-6 on the season and currently sixth in the Big Ten standings at 7-5. Meanwhile, Rutgers is 12-11 overall and ninth in the conference at 5-7. The two programs faced off three times last season, with Maryland winning and covering the spread in two of those head-to-head matchups.
